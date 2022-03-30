@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+I like:
+1. Swimming 🏊‍♂️
+2. Cake 🍰
